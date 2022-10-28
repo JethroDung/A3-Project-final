@@ -1,0 +1,8 @@
+# A3-Project-final![BG](https://user-images.githubusercontent.com/116044654/198576028-e5bd395e-a490-4743-8214-562e81a2d5b6.png)
+![Home](https://user-images.githubusercontent.com/116044654/198576038-545cfc57-8d17-4987-9895-9f80bb116ade.jpg)
+![Home](https://user-images.githubusercontent.com/116044654/198576040-790fee3a-85c5-4987-876b-6246e308a525.png)
+![Peppa](https://user-images.githubusercontent.com/116044654/198576042-ef5793b8-43c8-46b6-8277-80adb307d402.png)
+![BG](https://user-images.githubusercontent.com/116044654/198576370-2529cec4-ac20-402c-aa36-e9c658493d76.png)
+![Stone 1](https://user-images.githubusercontent.com/116044654/198576378-7127d019-1ba9-4c1d-a05e-cc0d5075c646.png)
+![stone](https://user-images.githubusercontent.com/116044654/198576384-73fb7ee3-4692-4398-9dbb-d5c521db00d2.png)
+[Scratch Project.zip](https://github.com/JethroDung/A3-Project-final/files/9887935/Scratch.Project.zip)
